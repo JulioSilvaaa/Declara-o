@@ -1,1 +1,0 @@
-# Declara-o
